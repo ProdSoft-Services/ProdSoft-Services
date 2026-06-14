@@ -1,4 +1,3 @@
-<img align="right" height="151" src="https://plain-eeur-prod-public.komododecks.com/202606/14/CubjoqHaXzJzfqDOXINA/image.png"  />
 
 ###
 
